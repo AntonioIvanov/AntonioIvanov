@@ -1,4 +1,6 @@
 # 💫 About Me:
+🇸🇻 | 🇷🇺 | 🇺🇸
+<br>
 🧖🏻‍♂️ I'm just a simple developer<br>👨🏻‍💻 I'm working on Kospli<br>⚡️ I like to explore new technologies and stay up to date<br>🎄 I like Christmas<br>🙌 If you ever need assistance or have questions, don't hesitate to reach out to me. I am always happy to lend a helping hand
 
 
