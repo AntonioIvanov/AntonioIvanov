@@ -1,5 +1,5 @@
 # 💫 About Me:
-🇸🇻 | 🇷🇺 | 🇺🇸
+🇸🇻 | 🇷🇺
 <br>
 🧖🏻‍♂️ I'm just a simple developer<br>👨🏻‍💻 I'm currently working at Kospli<br>🎄 I like Christmas<br>
 
